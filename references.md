@@ -1,1 +1,4 @@
-Easy Paesy Lemon Russ
+# References
+
+* octocat 1 😈
+* Easy Paesy Lemon Russ 🥷
